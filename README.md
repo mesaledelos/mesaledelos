@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mesaledelos
 - 👀 I’m interested in casi todo XD
 - 🌱 I’m currently learning programación 
-- 💞️ I’m looking to collaborate on el q quiera
+- 💞️ I’m looking to collaborate con el q quiera
 - 📫 How to reach me @shiro111 telgram
 
 <!---
